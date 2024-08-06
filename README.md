@@ -17,3 +17,11 @@ Python Project
 SQL Project
 
 ![image](https://github.com/user-attachments/assets/b1530f8b-6723-4915-97e2-18938a49bac6)
+
+![image](https://github.com/user-attachments/assets/bd5f9d4a-a657-4643-9723-18d2fcbca13a)
+
+![image](https://github.com/user-attachments/assets/cbf439f2-b1f6-4c74-8bff-5d893d33ce00)
+
+![image](https://github.com/user-attachments/assets/993bb4f3-3eea-4f34-870b-5274e9e90448)
+
+![image](https://github.com/user-attachments/assets/f6aac686-95ce-4ba9-804a-c7b471beebef)
